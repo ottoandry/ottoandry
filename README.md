@@ -2,7 +2,7 @@
 
 ## Introduction
 
-Hi, I'm Andrea Ottomanelli, class 03. I was born and currently live in Bari where I'm a sincere, open, friendly, sociable, and respectful young man. I'm passionate about exploring new ideas and projects to challenge myself. I have a solid academic background and I love to continue learning every day.
+Hi, I'm Andrea Ottomanelli, class 2003. I was born and currently live in Bari where I'm a sincere, open, friendly, sociable, and respectful young man. I'm passionate about exploring new ideas and projects to challenge myself. I have a solid academic background and I love to continue learning every day.
 
 I'm a motivated and determined person who doesn't easily give up in the face of difficulties. I have a strong work ethic and I'm always willing to put in maximum effort to achieve my goals.
 
